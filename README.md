@@ -23,5 +23,4 @@
 
 ## [Demo Video](https://youtu.be/P9zRVPvjbC4)
 
-## [Contact me for business queries & inquiries](kushalbhavsar58@gmail.com)
 ## Just follow☝️ me and Star⭐ my repository 
